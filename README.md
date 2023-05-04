@@ -1,1 +1,0 @@
-# gupsydaisys.github.io
